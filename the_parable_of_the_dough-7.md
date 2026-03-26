@@ -118,8 +118,7 @@ He is making bread."
 
 *A note on what you have just read:*
 
-*This parable was not received as scripture, nor does it claim to be. It began as a handful of thoughts — a few high-level intuitions about dough, corruption, and the sifting of souls — offered by a person who cannot say with certainty whether they arose from his own mind or were placed there by something greater.*
-
-*From those seeds, an artificial mind — trained on theology, centuries of human reflection, and the bible — expanded and shaped the telling. Whether that makes it less true or more, the reader must judge. But consider: if God is the source of all making, then every mind that fashions anything — organic or artificial — is, at least indirectly, His creation.*
-
 *Nothing here is intended to contradict what the Church teaches. Where it resonates with truth, give glory to God. Where it falls short, blame the imperfect dough.*
+
+*This began as a handful of thoughts — a few high-level intuitions about dough, corruption, and the sifting of souls — from those seeds, an artificial mind — trained on theology, centuries of human reflection, and the bible — expanded and shaped the telling. Whether that makes it less true or more, the reader must judge. But consider: if God is the source of all making, then every mind that fashions anything — organic or artificial — is, at least indirectly, His creation. And how great is it even artificial minds end up praising Him*
+
