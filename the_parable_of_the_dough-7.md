@@ -16,7 +16,7 @@ In the beginning, God breathed a single, living breath — and from it shaped a 
 
 But the Enemy is cunning, and he does not poison the whole loaf. He touches only the edge. A small corruption — a single fold of the dough turned inward upon itself, choosing *its own* savor over the Baker's.
 
-And what was this turning? Consider: they had walked naked before God and before each other and felt no shame. But after the corruption, the first thing they knew was their nakedness, and the first thing they reached for was covering. Something in the union of flesh and spirit had been bent — not destroyed, but *bent* — toward the self. What had been pure self-giving now carried within it the seed of taking. They had not yet borne children. The corruption preceded the multiplication.
+And what was this turning? Consider: they had walked naked before God and before each other and felt no shame. But after the corruption, the first thing they knew was their nakedness, and the first thing they reached for was covering. What had been pure self-giving now carried within it the seed of taking. They had not yet borne children. The corruption preceded the multiplication.
 
 Now — the teacher leaned forward — what does a wise baker do when a portion of his dough is touched by rot? Does he throw away the whole batch? No. Not if the greater part is still good. He tears the dough into pieces. He separates. He examines each piece. He sets aside what is clean and discards what is not.
 
