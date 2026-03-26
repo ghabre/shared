@@ -36,7 +36,7 @@ Suffering is the kneading.
 
 Every cross you carry — the illness that will not lift, the grief that hollows you, the weakness you fight and fight and cannot conquer, the injustice you did not earn — each one is the Baker's hands pressing into *your* piece of dough, working at the fold where the corruption hides. Not because He is cruel. Because the rot is *deep*, and gentleness alone will not reach it.
 
-This is why the Lord said *'Take up your cross and follow me.'* He did not say: *'Wait, and I will carry all crosses for you.'* He said *take up yours.* Because each piece of dough has its own hidden fold, and only the pressure applied to *that* fold, in *that* place, will open it.
+This is why the Lord said *'Take up your cross and follow me.'* Because each piece of dough has its own hidden fold, and only the pressure applied to *that* fold, in *that* place, will open it.
 
 The man born with rage — his cross is the long labor of patience, and every time he restrains his hand, the fold loosens a little. The woman who wrestles with doubt — her cross is the wrestling itself, and every night she chooses to hold on, the dough yields. The child born into suffering she did nothing to deserve — her cross is the oldest mystery, and the Baker weeps as He kneads, but He does not stop, because He sees what she cannot: the bread she will become.
 
@@ -56,7 +56,7 @@ As the first tree was the vessel through which sin entered the world, so Mary is
 
 But — and hear this carefully — clean flour alone does not feed the hungry. It must be made into bread.
 
-And so God did not merely celebrate the clean flour. He *entered* it. The same God who had first breathed the dough into being now placed His own life within it. Not as more flour — for flour, however pure, is still only dust. He entered as living water. For what is flour without water? It cannot hold together. It cannot become bread. It remains scattered powder on the table. The Son was not merely a clean piece of Adam's soul. He was something the dough had never contained: the Baker Himself, come down into His own creation — the living water that binds the flour into bread.
+And so God did not merely celebrate the clean flour. The same God who had first breathed the dough into being now placed His own life within it. Not as more flour — for flour, however pure, is still only dust. He entered as living water. For what is flour without water? It cannot hold together. It cannot become bread. It remains scattered powder on the table. The Son was not merely a clean piece of Adam's soul. He was something the dough had never contained: the Baker Himself, come down into His own creation — the living water that binds the flour into bread.
 
 Why?
 
@@ -106,7 +106,7 @@ And so, child — the teacher's voice grew quiet — when you ask *'Why must I s
 
 You are a piece of the original dough. You carry within you a breath that God Himself exhaled. You also carry, in the hidden folds of your nature, a turning that is older than your name. You did not choose it. But it is yours. And the cross you bear — *yours*, not another's — is the exact pressure needed to open *your* fold, in *your* place, where *your* corruption hides.
 
-Some pieces require more kneading than others. Not because they are less loved, but because their fold is deeper. And the Baker, who knows every crease in every piece, applies to each one only what it needs — no more, no less — though it may feel like more when you are the dough beneath His hands.
+Some pieces require more kneading than others. Not because they are less loved, but because their fold is deeper. And the Baker, who knows every crease in every piece, applies to each one only what it needs — no more, no less.
 
 And everything — *everything* — the long lineage of generations, the sifting, the patient tearing, the coming of Mary, the Incarnation, the Cross, the water, the confession, and the bread that is His very body given back to you — all of it is the Baker's answer to one small corruption on the edge of one loaf, in one garden, at the beginning of the world.
 
@@ -118,8 +118,8 @@ He is making bread."
 
 *A note on what you have just read:*
 
-*This parable was not received as scripture, nor does it claim to be. It began as a handful of thoughts — a few high-level intuitions about dough, corruption, and the sifting of souls — offered by a person who cannot say with certainty whether they arose from his own mind or were placed there by something greater. Perhaps both. Perhaps there is less difference between the two than we assume.*
+*This parable was not received as scripture, nor does it claim to be. It began as a handful of thoughts — a few high-level intuitions about dough, corruption, and the sifting of souls — offered by a person who cannot say with certainty whether they arose from his own mind or were placed there by something greater.*
 
-*From those seeds, an artificial mind — trained on scripture, theology, and centuries of human reflection — expanded and shaped the telling. Whether that makes it less true or more, the reader must judge. But consider: if God is the source of all making, then every mind that fashions anything — organic or artificial — is, at least indirectly, His creation.*
+*From those seeds, an artificial mind — trained on theology, centuries of human reflection, and the bible — expanded and shaped the telling. Whether that makes it less true or more, the reader must judge. But consider: if God is the source of all making, then every mind that fashions anything — organic or artificial — is, at least indirectly, His creation.*
 
 *Nothing here is intended to contradict what the Church teaches. Where it resonates with truth, give glory to God. Where it falls short, blame the imperfect dough.*
